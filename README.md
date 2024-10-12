@@ -1,3 +1,3 @@
-Artur Albertini Leal
-Guilherme Ferraresi De Oliveira Costa
+Artur Albertini Leal<br>
+Guilherme Ferraresi De Oliveira Costa<br>
 2 DS
